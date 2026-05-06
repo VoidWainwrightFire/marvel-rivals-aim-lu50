@@ -1,4 +1,4 @@
-
+Get the ultimate marvel rivals aim assist mod menu with marvel rivals aim assist exclusive Mod Menu: hero critical hit boost & team buff amplifier. Featuring hero critical hit
 
 
 
